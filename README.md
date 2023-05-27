@@ -1,0 +1,3 @@
+- Hi Bro I am Mavlonxon i am seventeen years old
+- 👀 I’m interested in a lot of things to be more excect i am really into Front end developer.
+- 🌱 I’m currently learning Html, Css Javascript, React.js Node.js
